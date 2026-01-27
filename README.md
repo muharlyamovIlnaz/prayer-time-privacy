@@ -1,1 +1,0 @@
-# Prayer Time Privacy Policy
